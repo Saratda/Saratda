@@ -1,2 +1,2 @@
-  ⚙️ *I am Sara, doing more than I can* ⚙️
+  🌹 *I am Sara, doing more than I can* 🌹
       
